@@ -28,7 +28,7 @@ I used to make different Projects related to Coding I used Python, Html, CSS, Ja
 [![](https://komarev.com/ghpvc/?username=ammarrafihacker-cloud&icon=0&color=0)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-   You can Donate Me offline Contact: 7070700354
+   You can Donate Me By Contacting on: 7070700354
 
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
